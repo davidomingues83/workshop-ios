@@ -11,3 +11,5 @@ Os meus hobbies são:
 - Desenhar
 - Estudar música
 - Praticar atividades físicas 
+- Conhecer todas as músicas possíveis
+- Torcer para o corinthians
